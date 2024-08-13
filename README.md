@@ -1,4 +1,4 @@
-- 👋 Ola, eu sou @Davi da silva prado, moro em São Paulo, tenho 15 anos e estou estudando atualmente.
+- 👋 Ola, eu sou @Davi da silva prado, moro em São Paulo, tenho 15 anos e estou fazendo o ensino médio atualmente.
 - 👀 Estou interessado em aprender mais sobre a internet 
 - 🌱 Atualmente estou aprendendo a como melhorar nas edições de videos
 - 💞️ Procuro colaborar em qualquer coisa para aprender mais
